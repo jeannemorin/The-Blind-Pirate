@@ -73,3 +73,13 @@
 
 
 ## Bonus
+
+
+
+
+## Cahier des Charges Redigé
+
+https://drive.google.com/open?id=1TWtMY1_9QCFSFtHtlgo_n3p1TQjXqdfKvx3VFac47do
+
+
+
